@@ -1,0 +1,2 @@
+# premium-marlinspike-001-marlinspike-seamanship-log
+You've mastered the knots, but tracking your seamanship progress across time zones and practice sessions keeps slipping through your fingers. The Marlinspike Seamanship Log transforms scattered notes into a comprehensive guide that documents every technique, timing, and improvement.  This Notion template is purpose-built for serious marlinspike pra
